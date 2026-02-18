@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RICJ030222HCSNLRA7
+RICJ030222HCSNLRA7
